@@ -45,7 +45,6 @@
 <pre>
 Anderson
     ଲ( ⓛ ω ⓛ *)ଲ
-        <a hreft="https://www.linkedin.com/in/anderson-borba-8861b91a2/">Linkedin</a>
 </pre>
 
 
